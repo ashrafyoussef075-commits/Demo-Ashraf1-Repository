@@ -6,3 +6,5 @@ It has been created by Ashraf Youssef on September 23rd., 2025
 That was the National Saudi Arabian Day.
 
 On that day I took my kid To jarir book store near by my home.
+
+I will stop writing my coode and take a break for now.
